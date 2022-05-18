@@ -1,3 +1,3 @@
 # SUPPOSITORY
-Welcome to the *suppository
+Welcome to the *suppository*
 💩
