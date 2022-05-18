@@ -1,3 +1,3 @@
 # SUPPOSITORY
-Welcome to my suppository
-(⌐■_■)
+Welcome to the *suppository*
+💩
